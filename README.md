@@ -1,4 +1,4 @@
-# Venkata Rahul Murarietty 
+# Venkata Rahul Murarisetty 
 
 I am graduated in electronics and Communication Engineering.
 I have some what coding language.
